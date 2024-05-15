@@ -1,0 +1,1 @@
+1. Put something in a shopping basket
